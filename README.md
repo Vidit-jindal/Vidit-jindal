@@ -8,4 +8,4 @@
 - 👯 I’m looking to collaborate on anything :)
 - 🤔 I’m looking for help with DSA . 
 - 💬 Ask me about 
-- 📫 You can contact me at [LinkedIn](https://www.linkedin.com/in/vidit-jindal-53270a182/)
+- 📫 You can contact me at [LinkedIn](https://www.linkedin.com/in/vidit-jindal-53270a182/) or on twitter as well .
